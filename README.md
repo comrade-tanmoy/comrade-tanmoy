@@ -28,5 +28,5 @@ I'm a dedicated IT professional with over 2 years of hands-on experience in clou
 
 ## 📫 Let's Connect
 
-- [LinkedIn](https://www.linkedin.com/in/tanmoy-parua-80bba426a) *(Add your profile link)*
+- [LinkedIn](https://www.linkedin.com/in/tanmoy-parua-80bba426a)
 - [Email](tanmoyparua0@gmail.com)
