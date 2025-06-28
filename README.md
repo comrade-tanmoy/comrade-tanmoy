@@ -30,4 +30,3 @@ I'm a dedicated IT professional with over 2 years of hands-on experience in clou
 
 - [LinkedIn](https://www.linkedin.com/in/tanmoy-parua-80bba426a) *(Add your profile link)*
 - [Email](tanmoyparua0@gmail.com)
-- 
